@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Doshibro64
+- 👀 I’m interested in Nintendo games (Mostly yoshi)
+- 🌱 I’m currently learning Code(so im rutsy)
+- 💞️ I’m looking to collaborate on nintendo reladed games (and more)
+- ⚡ Fun fact: ... I have a pixil art acount (https://www.pixilart.com/) just search Doshibro64
